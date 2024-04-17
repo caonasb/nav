@@ -6,10 +6,6 @@
 
 
 ### 狼友福利导航地址发布页
-### 【地址1】：https://langyoudh2.buzz
-
-
-### 巴厘岛导航地址发布页
 ### 【地址1】：https://balidao1.buzz
 
 
